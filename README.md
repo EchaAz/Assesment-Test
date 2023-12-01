@@ -1,4 +1,4 @@
 # Biodata
 
 Nama : Achmad Fachreza Az
-Tanggal Lahir : 23 April 2001
+Tempat Tanggal Lahir : Jakarta, 23 April 2001
